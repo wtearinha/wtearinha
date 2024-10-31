@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wtearinha
-- 👀 I’m interested in ...
+- 👀 I’m interested in games, music and learning more 
 - 🌱 I’m currently learning python
 - ⚡ Fun fact: idk
 
